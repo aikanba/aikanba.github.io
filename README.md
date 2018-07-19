@@ -1,1 +1,0 @@
-# aikanba.github.io
